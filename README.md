@@ -1,4 +1,9 @@
 ### Hi there 👋
+Minecraft:YuanYuanOwO
+Discord:PigeonYuan#8813
+Email:1403723012@qq.com
+i am stupid :(
+
 
 <!--
 **YuanYuanOwO/YuanYuanOwO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
