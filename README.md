@@ -1,8 +1,8 @@
 ### Hi there 👋
-Minecraft:YuanYuanOwO
-Discord:PigeonYuan#8813
-Email:1403723012@qq.com
-i am stupid :(
+- Minecraft:YuanYuanOwO
+- Discord:PigeonYuan#8813
+- Email:1403723012@qq.com
+- i am stupid :(
 
 
 <!--
