@@ -5,6 +5,9 @@
 - i am stupid :(
 
 
+![EQ27QN81VP48_YJJX.jpg](https://tu.tianji.link/images/2022/02/12/EQ27QN81VP48_YJJX.jpg)
+
+
 <!--
 **YuanYuanOwO/YuanYuanOwO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
