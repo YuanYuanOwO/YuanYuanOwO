@@ -1,11 +1,10 @@
 ### Hi there 👋
-- Minecraft:YuanYuanOwO
-- Discord:PigeonYuan#8813
-- Email:1403723012@qq.com
-- i am stupid :(
-
-
-![EQ27QN81VP48_YJJX.jpg](https://tu.tianji.link/images/2022/02/12/EQ27QN81VP48_YJJX.jpg)
+Minecraft:YuanYuanOwO  
+Discord:PigeonYuan#8813  
+Email:1403723012@qq.com  
+I am stupid, and my sleep sucks.  
+so if you want to contact me, you should wait a few hours  
+i am so sorry :/
 
 
 <!--
