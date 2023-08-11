@@ -1,9 +1,9 @@
 ![2022-06-14_22 16 31](https://user-images.githubusercontent.com/81153017/174344811-e41897fe-d989-4898-9ebb-5671ee506118.png)
 
 ### Hi there 👋
-Minecraft:YuanYuanOwO  
+Minecraft:YuanYuanOwO(Daylight_Yuan)  
 Discord:PigeonYuan#8813  
-Email:yuanyuanowo@qq.com  
+Email:yuanyuanowo@qq.com yuanyuanowo@gmail.com  
 I am stupid, and my sleep sucks.  
 so if you want to contact me, you should wait a few hours  
 i am so sorry :/  
