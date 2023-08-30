@@ -9,7 +9,8 @@ so if you want to contact me, you should wait a few hours
 i am so sorry :/  
 Timezone:UTC+8    
 
-[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=YuanYuanOwO&show_icons=true&theme=dracula)](https://github.com/anuraghazra/github-readme-stats)
+[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=YuanYuanOwO&show_icons=true&theme=dracula)](https://github.com/anuraghazra/github-readme-stats)  
+[![Discord Presence](https://lanyard.cnrad.dev/api/702899146419339406)](https://discord.com/users/702899146419339406)
 
 
 
