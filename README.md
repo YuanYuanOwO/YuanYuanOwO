@@ -1,17 +1,8 @@
-![2022-06-14_22 16 31](https://user-images.githubusercontent.com/81153017/174344811-e41897fe-d989-4898-9ebb-5671ee506118.png)
+>They said, "Babe, you gotta fake it till you make it" And I DID!
 
-### Hi there 👋
-Minecraft:YuanYuanOwO(Daylight_Yuan)  
-Discord:PigeonYuan#8813  
-Email:yuanyuanowo@qq.com yuanyuanowo@gmail.com  
-I am stupid, and my sleep sucks.  
-so if you want to contact me, you should wait a few hours  
-i am so sorry :/  
-Timezone:UTC+8    
-
-[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=YuanYuanOwO&show_icons=true&theme=dracula)](https://github.com/anuraghazra/github-readme-stats)  
-[![Discord Presence](https://lanyard.cnrad.dev/api/702899146419339406)](https://discord.com/users/702899146419339406)
-
+你好，我是 YuanYuanOwO，目前活跃于 Minecraft社区 且开了个[服务器](https://play.mcmod.cn/sv20186348.html)，曾为多家MC服务器帮过忙  
+如果你想联系我，可以发送邮件到 yuanyuanowo@qq.com 我会在空闲时间回复您的邮件  
+我拥有两个 Minecraft 账户，它们的ID分别是 Daylight_Yuan 与 YuanYuanOwO  
 
 
 
