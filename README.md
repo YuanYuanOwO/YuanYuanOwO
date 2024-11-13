@@ -5,6 +5,8 @@
 如果你想联系我，可以发送邮件到 yuanyuanowo@qq.com    
 ## 支持我 
 如果您想投喂远远，请查看[此处](https://github.com/Tianji-Server/donate-server)
+## 学习中
+Java+Bukkit插件开发和基本交流
 
 
 
