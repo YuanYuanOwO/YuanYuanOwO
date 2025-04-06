@@ -4,7 +4,7 @@
 我拥有两个 Minecraft 账户，它们的ID分别是 Daylight_Yuan 与 YuanYuanOwO  
 如果你想联系我，可以发送邮件到 yuanyuanowo@qq.com    
 ## 支持我 
-如果您想投喂远远，请查看[此处](https://github.com/Tianji-Server/donate-server)
+如果您想投喂远远，请查看[我的爱发电个人链接](https://afdian.com/a/yuanyuanowo)
 ## 学习中
 Java+Bukkit插件开发和基本交流
 
